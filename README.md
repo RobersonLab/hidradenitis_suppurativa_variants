@@ -1,0 +1,1 @@
+# hidradenitis_suppurativa_variants
